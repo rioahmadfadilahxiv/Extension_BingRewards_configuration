@@ -1,0 +1,1 @@
+# Extension_BingRewards_configuration
